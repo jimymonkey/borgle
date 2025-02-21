@@ -1,10 +1,1 @@
-# borgle
-
-just a little expirement...
-for now.....
-
-
-
-
-
-;)
+Project i made when i was thirteen years old
